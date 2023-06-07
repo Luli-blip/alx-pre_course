@@ -1,1 +1,1 @@
-keep pushing
+knowledge is power
